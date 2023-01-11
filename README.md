@@ -14,8 +14,8 @@
 
 *Here, I just try to find it in the*
 
-- *brain*
-- *cognition*
+- *brain and cognition*
+- *consciousness*
 - ***neuroscience inspired Artificial Intelligence.***
 
 *All opinions and ideas are welcome.*
