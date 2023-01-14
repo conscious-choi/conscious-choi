@@ -10,7 +10,7 @@
 
 ***"What is right?"***
 
-*Well, There will be nothing right and wrong.*
+*Well, There will be no right and wrong.*
 
 *Here, I just try to find it in the*
 
