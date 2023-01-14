@@ -1,4 +1,4 @@
-# *Ready to start our voyage?*
+# Life is only thing we need
 
 *Philosophy, art, religion, science, engineering, ...*
 
