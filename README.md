@@ -12,7 +12,7 @@
 
 *Well, There will be no right and wrong.*
 
-*Here, I just try to find it in the*
+*I just want to get inspired by*
 
 - *brain and cognition*
 - *consciousness*
