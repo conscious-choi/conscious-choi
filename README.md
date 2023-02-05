@@ -1,22 +1,14 @@
-# Life is only thing we need
+# ***An Art called life***
 
 *Philosophy, art, religion, science, engineering, ...*
 
 *All human-made reasons are ultimately to find a single truth.*
 
-- *Someone wants to find out by studying the universe.*
-- *Some people have learned through natural science.*
-- *Someone else wants to find the answer in religion.*
+*Someone wants to find out by studying the universe, some people have learned through natural science, and someone else wants to find the answer in religion.*
 
-***"What is right?"***
+*What is right? Well, There will be no right and wrong.*
 
-*Well, There will be no right and wrong.*
-
-*I just want to get inspired by*
-
-- *brain and cognition*
-- *consciousness*
-- ***neuroscience inspired Artificial Intelligence.***
+*I just try to find from consciousness, and neuroscience inspired artificial intelligence.*
 
 *All opinions and ideas are welcome.*
 
