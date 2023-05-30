@@ -1,20 +1,14 @@
-# ***An Art called life***
+# Jonathan Choi
 
-*Philosophy, art, religion, science, engineering, ...*
+### Life as an Art
 
-*All human-made reasons are ultimately to find a single truth.*
+Philosophy, science, literature, engineering, art...
+Every creation of mankind may be driven by the quest for a universal truth.
 
-*Someone wants to find out by studying the universe, some people have learned through natural science, and someone else wants to find the answer in religion.*
+For that enigmatic existence, whether it manifests or not, we each persevere in our respective realms, giving our utmost efforts, today.
 
-*What is right? Well, There will be no right and wrong.*
+Do you perchance know if it shall unveil the answer?
 
-*I just try to find from consciousness, and neuroscience inspired artificial intelligence.*
-
-*All opinions and ideas are welcome.*
-
-*Thank you.*
+Regardless, the very essence of our lived experience itself is an art form.
 
 [![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fvirochana8&count_bg=%23000000&title_bg=%23555555&icon=spacex.svg&icon_color=%23E7E7E7&title=Voyagers&edge_flat=false)](https://hits.seeyoufarm.com)
-
-
-Profile Pic: <a href="https://kr.freepik.com/free-photo/bongeunsa-temple-in-seoul-korea_11600497.htm">tawatchai07</a> Freepik
